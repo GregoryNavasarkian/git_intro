@@ -1,1 +1,2 @@
 Gregory Navasarkian
+navasarg@oregonstate.edu
